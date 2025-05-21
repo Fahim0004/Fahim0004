@@ -1,4 +1,4 @@
-# 👋 Hello,It's me Fahim  
+# 👋 Hello,It's me Fahim Hossain Dipo  
 
 🎓 **B.Sc in Computer Science and Engineering**  
 🏫 **Currently studying at HSTU**  
